@@ -8,7 +8,7 @@
 #### Formação:
 🎓 Faculdade Impacta >> Sistema de Informação (2º Semestre).
 
-🎓 PUC-SP >> Ciências Contábeis.
+🎓 PUC-SP >> Ciências Contábeis com CRC.
 
 ### Redes Sociais
 
