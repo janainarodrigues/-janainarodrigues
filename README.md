@@ -8,7 +8,8 @@
 #### Formação:
 🎓 Faculdade Impacta >> Sistema de Informação (2º Semestre).
 
-🎓 PUC-SP >> Ciências Contábeis com CRC.
+🎓 PUC-SP >> Bacharel em Ciências Contábeis.
+CRC aprovada em Jan/2021.
 
 ### Redes Sociais
 
